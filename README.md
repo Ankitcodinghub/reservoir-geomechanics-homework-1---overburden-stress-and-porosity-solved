@@ -1,0 +1,1 @@
+# reservoir-geomechanics-homework-1---overburden-stress-and-porosity-solved
